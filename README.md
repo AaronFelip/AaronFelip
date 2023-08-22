@@ -5,3 +5,5 @@
 >🩵 Power couple: [@marwa-darouich](https://www.github.com/marwa-darouich)  
 >🐶 Papa d'un petit Boston Terrier nommé Nixy  
 >🍜 Fan de GTO, Golden Boy, DB...  
+
+Je vous souhaites une belle rentrée scolaire 2023!
