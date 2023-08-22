@@ -1,5 +1,5 @@
 ### Salut à tous! 👋
-#### Voici mon Github dédié aux démos que je donne à l'UQAM et mes propres cours.
+#### Voici mon Github dédié aux démos que je donne à l'UQAM.
 
 >💌 Pour communiquer avec moi: Discord @aaronfelip ou par [courriel](osorio_arancibia.aaron@courrier.uqam.ca)  
 >🩵 Power couple: [@marwa-darouich](https://www.github.com/marwa-darouich)  
