@@ -6,4 +6,4 @@
 >🐶 Papa d'un petit Boston Terrier nommé Nixy  
 >🍜 Fan de GTO, Golden Boy, DB...  
 
-Je vous souhaites une belle rentrée scolaire 2023!
+Bonne mi-session!
