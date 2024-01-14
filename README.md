@@ -4,6 +4,6 @@
 >💌 Pour communiquer avec moi: [courriel](mailto:osorio_arancibia.aaron@courrier.uqam.ca?subject=Aide%20labo)  
 >🩵 Power couple: [@marwa-darouich](https://www.github.com/marwa-darouich)  
 >🐶 Papa d'un petit Boston Terrier nommé Nixy  
->🍜 Fan de GTO, Golden Boy, DB...  
+>🍜 Fan de GTO, Akira, DB...  
 
-Bonne mi-session!
+Bonne session!
