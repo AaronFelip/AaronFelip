@@ -5,4 +5,8 @@
 >💌 Communiquer par courriel: [courriel uqam](mailto:osorio_arancibia.aaron@courrier.uqam.ca?subject=Aide%20labo)  
 >🎮 Communiquer par Discord: [@aaronfelip](https://discord.com)
 
+Rejoins mon LinkedIn  : [@aaron-osorio](https://www.linkedin.com/in/aaron-osorio/)
+
+Ce repo contients les solutionnaires des démos de INF2050, INF3190, INF5190, MGL7010, MGL7030.
+
 Bonne session!
